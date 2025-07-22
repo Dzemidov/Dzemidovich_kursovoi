@@ -1,1 +1,0 @@
-# Dzemidovich_kursovoi
